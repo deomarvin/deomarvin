@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Anything
 - 📫 How to reach me 
 Instagram: deomarvinyahya
-Email: deomarvinyahya@gmail.com
-Whatsapp: +6281218065554
+Email: me@dmrvn.com
+Whatsapp: +62811310520
